@@ -1,0 +1,1 @@
+Living in Bolivia for 5 years as a child was definitely my most memorable experience; However, seeing the Redwood and Sequoia Forests were the most ineffable experience I've ever had. Plus, eating grilled oysters on the Northern California coast is pure magic!
