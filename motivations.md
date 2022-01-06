@@ -1,0 +1,1 @@
+I am excited to transition from the Hospitality/Customer Service industry into Software Development because of the ubiquity in applications of the skill sets required. I will be able to work remotely, for a multitude of different industries, and never have to experience a furlough, hopefully. 
