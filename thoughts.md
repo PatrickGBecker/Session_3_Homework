@@ -1,1 +1,1 @@
-I love the collaboration, networking and intense brain cramming
+I love the collaboration and brain cramming 
